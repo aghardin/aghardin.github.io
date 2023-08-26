@@ -1,6 +1,3 @@
-# Anna Grace Hardin
-903-730-1466 | aghardin@att.net | www.linkedin.com/in/annagrace-hardin/
-
 ## Summary
 I am a passionate learner and appreciate intellectually stimulating work. This is why I am studying to graduate with my Master's in Accountancy and am pursuing a career in public accounting. 
 
